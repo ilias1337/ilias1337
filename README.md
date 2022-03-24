@@ -1,4 +1,4 @@
 
 - hi ich bin ilias1337 profi 
-- 💞️ profi skidder also nerv nicht 
+- 💞️ https://discord.gg/r2BwYCAZDe
 - 📫 https://ayo.so/iliasabi
